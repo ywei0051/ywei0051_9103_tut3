@@ -31,3 +31,11 @@ Halftone creates a strong graphic, print‑like aesthetic that matches the assig
 
 **Example URL:** [Canvas Dither on GitHub](https://github.com/ticky/canvas-dither).  
 *(Open the 'Live demo' link to see the effect, and browse the code to understand it.)*
+
+**Images References**
+Part 1:
+Croll, B. (2022, June 13). Variety. Variety. https://variety.com/2022/film/news/spider-verse-the-spot-sony-annecy-1235292383/
+https://www.facebook.com/JustAshotttt/photos/d41d8cd9/323135087140134/
+
+Part 2:
+Swarley (TheSwarley) - profile | Pinterest. (2026, May 12). Pinterest. https://de.pinterest.com/theswarley/
