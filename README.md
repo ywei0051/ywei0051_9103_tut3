@@ -35,6 +35,7 @@ Halftone creates a strong graphic, print‑like aesthetic that matches the assig
 **Images References**
 Part 1:
 Croll, B. (2022, June 13). Variety. Variety. https://variety.com/2022/film/news/spider-verse-the-spot-sony-annecy-1235292383/
+
 https://www.facebook.com/JustAshotttt/photos/d41d8cd9/323135087140134/
 
 Part 2:
